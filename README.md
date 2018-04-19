@@ -1,3 +1,3 @@
 # Resume
 
-a copy of my resume as of April 18, 2018
+Please feel free to take a look at my resume and downlad a copy if you would like.
